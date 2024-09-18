@@ -1,3 +1,5 @@
+# 💫 About Me:
+🇮🇳 Trickster<br>✨️ He/Him (16)<br>💫 Founder/Developer ~ @Alice ™ (6.6k+)
 
 ## 🌐 Socials:
 [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/Trickster_OwO_) 
