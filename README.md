@@ -1,5 +1,5 @@
 # 💫 About Me:
-Founder/Developer ~ @Alice ™ (7k)
+Founder/Developer ~ @Alice ™ (9k)
 
 ## 🌐 Socials:
 [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/Trickster_OwO_) [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/https://discord.gg/e2u8M3EEb3) 
